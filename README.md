@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Love-For-C
+- 👀 I’m interested in cybersecurity
+- 🌱 I’m currently learning JavaScript Essentials, JS
+- 💞️ I’m looking to learn more
+- 📫 How to reach me: @Ilovemacarroni on tg
+- 😄 Pronouns: any
+- ⚡ Fun fact: ...
